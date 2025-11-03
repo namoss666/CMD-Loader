@@ -4,5 +4,4 @@
 # Good For Pasted Cheets 
 # Easy to paste
 
-# much more on my discord
--- discord.com/invite/JapwN4FRKD
+# much more on my discord - discord.com/invite/JapwN4FRKD
